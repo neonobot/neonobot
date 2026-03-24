@@ -12,6 +12,7 @@
 
 ## Как со мной связаться:
 * [Telegram: @annsk_ss](https://t.me/annsk_ss)
+* [Мое резюме на HeadHunter](https://ryazan.hh.ru/resume/dc4ee444ff0fbe96150039ed1f30726a584376)
 * E-mail: annata.reutova@gmail.com
 
 
